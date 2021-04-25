@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @cesarefiala
+- 👀 I’m interested in optimising cultural venues and attractions, using the latest tech available.
+- 💞️ Message me if you want to talk about: museum optimisation, increasing venues' revenue through technology, AI for culture. 
+- 📫 How to reach me: feel free to ping me on LinkedIn, at https://www.linkedin.com/in/cesare-fialà-2541b5b3
